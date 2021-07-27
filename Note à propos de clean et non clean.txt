@@ -1,0 +1,5 @@
+Différence entre notebook clean et non clean:
+
+- Présence des indicateurs supprimés
+- Présence d'anciennes operations commentés
+- Certains commencentaires ne sont pas à jour.
