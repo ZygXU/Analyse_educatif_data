@@ -2,7 +2,7 @@
 
 
 
-![alt text](https://www.google.com/url?sa=i&url=http%3A%2F%2Fleconomiste.sn%2Fles-transitions-au-coeur-du-defi-climatique%2F&psig=AOvVaw0C-iM0-lmfd09FEb_nEH11&ust=1627507042432000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOja8KqWhPICFQAAAAAdAAAAABAD)
+![alt text](https://lh3.googleusercontent.com/proxy/7_O5tRiXBZeIdwkRXSxxeKBwj5DOYdiWzq9Fke7TNVnV3ExokSh8oVXuf1pEy83d8WdszcoNGIDLBM9am0gQUexeY0YIUY5RjeIWaWQbNy8XFOcViQcvyzeA0NQ9toOZ9QzNpOy_anSP)
 
 
 ## Description
